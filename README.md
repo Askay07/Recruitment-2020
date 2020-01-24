@@ -23,6 +23,8 @@ Recruitment Mentor/Counselor , who help Potential New Members(PNMs) with the cou
 1. Learn facts and information about other chapters like their colors, flowers, philanthropies, mottos, etc.
 1. All questions should be answered genuinely, because we really want to know what you think and how you feel.
 
+![info](https://user-images.githubusercontent.com/42754345/73112158-eb4d7e00-3ed2-11ea-86b0-97aacb8ad004.PNG)
+
 ## Social Media
 
 Follow us on social media for more updates!!
