@@ -1,4 +1,4 @@
-# Gamma Chi
+# RECRUITING GAMMA CHIs
 Panhellenic Recruitment 2020
 
 ## What is a Gamma Chi?
@@ -21,6 +21,11 @@ Recruitment Mentor/Counselor , who help Potential New Members(PNMs) with the cou
 1. Learn facts and information about other chapters like their colors, flowers, philanthropies, mottos, etc.
 1. All questions should be answered genuinely, because we really want to know what you think and how you feel.
 
+## Social Media
+
+Follow us on social media for more updates!!
+
+[Panhellenic-Instagram](https://www.instagram.com/nwmsupanhellenic/)
 
 
 
