@@ -10,10 +10,10 @@ Recruitment Mentor/Counselor , who help Potential New Members(PNMs) with the cou
 1. Authentic.
 
 ## Responsibilities of a Gamma Chi
-1. Gamma Chi Training Sessions
-1. Work Weekend
-1. Dissociation
-1. Fall 2020: Pre Recruitment Events
+* Gamma Chi Training Sessions
+* Work Weekend
+* Dissociation
+* Fall 2020: Pre Recruitment Events
 
 ## Tips for interview
 
