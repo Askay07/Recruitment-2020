@@ -1,6 +1,8 @@
 # RECRUITING GAMMA CHIs
 Panhellenic Recruitment 2020
 
+![Panhellenic Council](https://www.facebook.com/NWMSUPanhellenic/photos/a.639506619831097/667177377064021/?type=1&theater)
+
 ## What is a Gamma Chi?
 Recruitment Mentor/Counselor , who help Potential New Members(PNMs) with the course of recruitment by guiding, helping, encouraging, them throughout the process. So everyone can add a new CHAPTER to their story.
 
