@@ -17,9 +17,9 @@ Recruitment Mentor/Counselor , who help Potential New Members(PNMs) with the cou
 
 ## Tips for interview
 
-1. Be yourself, be confident
-1. Learn facts and information about other chapters like their colors, flowers, philanthropies, mottos, etc.
-1. All questions should be answered genuinely, because we really want to know what you think and how you feel.
+* Be yourself, be confident
+* Learn facts and information about other chapters like their colors, flowers, philanthropies, mottos, etc.
+* All questions should be answered genuinely, because we really want to know what you think and how you feel.
 
 
 
