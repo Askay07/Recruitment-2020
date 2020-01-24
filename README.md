@@ -29,6 +29,8 @@ Follow us on social media for more updates!!
 [Panhellenic-Twitter](https://twitter.com/NW_Panhellenic)
 [Panhellenic-Facebook](https://www.facebook.com/NWMSUPanhellenic/)
 
+Contact: panvpri@nwmissouri.edu if you have any questions or concerns.
+
 
 
 
