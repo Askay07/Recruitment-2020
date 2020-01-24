@@ -26,7 +26,8 @@ Recruitment Mentor/Counselor , who help Potential New Members(PNMs) with the cou
 Follow us on social media for more updates!!
 
 [Panhellenic-Instagram](https://www.instagram.com/nwmsupanhellenic/)
-
+[Panhellenic-Twitter](https://twitter.com/NW_Panhellenic)
+[Panhellenic-Facebook](https://www.facebook.com/NWMSUPanhellenic/)
 
 
 
