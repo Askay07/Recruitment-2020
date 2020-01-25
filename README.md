@@ -3,6 +3,8 @@ Panhellenic Recruitment 2020
 
 ![panhel](https://user-images.githubusercontent.com/42754345/73112083-901b8b80-3ed2-11ea-9ecd-e42964284745.PNG)
 
+Credit: [Panhellenic-Facebook](https://www.facebook.com/NWMSUPanhellenic/) 
+
 ## What is a Gamma Chi?
 Recruitment Mentor/Counselor , who help Potential New Members(PNMs) with the course of recruitment by guiding, helping, encouraging, them throughout the process. So everyone can add a new CHAPTER to their story.
 
@@ -24,6 +26,8 @@ Recruitment Mentor/Counselor , who help Potential New Members(PNMs) with the cou
 1. All questions should be answered genuinely, because we really want to know what you think and how you feel.
 
 ![info](https://user-images.githubusercontent.com/42754345/73112158-eb4d7e00-3ed2-11ea-86b0-97aacb8ad004.PNG)
+
+Credit: [Panhellenic-Twitter](https://twitter.com/NW_Panhellenic)
 
 ## Social Media
 
